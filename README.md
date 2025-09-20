@@ -1,5 +1,5 @@
 # VSD-IAT Aditya Barot
-Hi guys, I'm so glad I got a part of this 
+Hi guys, I'm so glad I got to be a part of this 
 
 
 
